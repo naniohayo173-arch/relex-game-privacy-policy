@@ -1,0 +1,1 @@
+# relex-game-privacy-policy
